@@ -8,7 +8,8 @@ Joing my discord for support and a bunch of cool tools like jito pool bundling s
 Server: https://discord.gg/rn84eaRv7Y
 
 My discord: testicklez
-My TG: @CMaxii
+
+My TG: @testicklez
 
 # Building
 
